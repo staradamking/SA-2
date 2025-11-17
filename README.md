@@ -1,2 +1,0 @@
-# Staradam-calendar-
-New Age 
